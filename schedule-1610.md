@@ -47,7 +47,7 @@
 
 ### Friday, December 16th
 
-1.   
+1.   Amy Kintner - "What's That Noise? A Very Brief Bit About How Computers Began to Make Sounds and (Eventually) Music"
 2.  
 
 ### Monday, December 19th
